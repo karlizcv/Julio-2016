@@ -1,7 +1,7 @@
 <img src="http://posgrados.cicese.mx/img/logos/cicese.jpg" / width = 20%>
 
 ## [Estado actual del cultivo de Bivalvos en México] (http://www.innovacion.gob.sv/inventa/attachments/article/3652/articles-1667_recurso_1.pdf#page=107)
-#### A. N. Maenda-Martínez
+####A. N. Maenda-Martínez 
 
 **Centro de Investigaciones Biológicas del Noroeste**
 
