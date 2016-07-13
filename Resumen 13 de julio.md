@@ -5,7 +5,7 @@
 
 **Centro de Investigaciones Biológicas del Noroeste**
 
-**Resumen por:** Karla Lizeth Castro Valencia 
+**Resumen por:** Castro valencia Karla Lizeth
 
 México se encuentra en cuarto lugar de producción de moluscos bivalvos de América Latina.  Los registros de producción han variado 
 a lo largo del tiempo iniciando en 1987 con 20 toneladas, incrementando en años posteriores y disminuyendo después y consiguientemente 
